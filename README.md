@@ -9,13 +9,27 @@ because they are godly
 
 <hr>
 
-<strong>now read my poem!!!!</strong>
+4444
 
-I really like fours
+I really like four
 
-I like 4 groups of 4, so I also like 16
+It is my favorite number
 
-I like 4 to the fourth power so i also like 256
+it also interferes with everything I do :)
 
+I do something
 
-(obvously not done)
+I have to do it 4 times :3 
+
+washing my hands
+
+I do it 4 times
+
+a randomly say something
+
+I say it 4 times(the last ones are very quiet)
+
+I type an !!!! or ????
+
+I type it four times
+
